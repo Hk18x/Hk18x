@@ -8,6 +8,6 @@
 
 💬 Ask me about Machine Learning and Data Science
 
-📫 Reach me: at Harshit18mishra@gmail.com
+📫 Reach me: at harshit18mishra@gmail.com
 
 
